@@ -1,8 +1,8 @@
-# Unleash Your Creative Potential – Enter the New Era of AI Art with MidJourney!
-## 🌟 AI Creativity, the Revolution of Art! 🌟
+## Unleash Your Creative Potential – Enter the New Era of AI Art with MidJourney!
+### 🌟 AI Creativity, the Revolution of Art! 🌟
 Ready to take your creativity to the next level? With MidJourney, transform your ideas and imagination into stunning pieces of art using cutting-edge AI technology. Whether it's digital painting, illustration design, visual arts, or brand creation, MidJourney offers endless possibilities.
 
-## 🎨 Why Choose MidJourney?
+### 🎨 Why Choose MidJourney?
 
 🧠 AI-Powered Art Generation: Simply input a text prompt, and the AI generates beautiful, unique visuals in seconds.
 🌐 Wide Range of Artistic Styles: From modern abstracts to classic oil paintings, over hundreds of styles to choose from.
